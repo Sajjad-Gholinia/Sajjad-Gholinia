@@ -17,8 +17,9 @@
 ## 📫 Contact Me
 
 - 📧 Email: sajjadgholinia2924@gmail.com
--     www.linkedin.com/in/sajjad-gholinia-11644b377
- 
+- 🔵  https://linkedin.com/in/sajjad-gholinia-11644b377
+ 🧑‍💼 [LinkedIn](https://www.linkedin.com/in/sajjad-gholinia-11644b377)
+
 ---
 
 ## 📈 GitHub Stats
