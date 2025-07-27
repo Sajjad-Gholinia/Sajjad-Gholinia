@@ -16,7 +16,7 @@
 
 ## 📫 Contact Me
 
-- 📧 Email: sajjad@example.com
+- 📧 Email: sajjadgholinia2924@gmail.com
 
 ---
 
