@@ -17,8 +17,7 @@
 ## 📫 Contact Me
 
 - 📧 Email: sajjadgholinia2924@gmail.com
-- 🔵  https://linkedin.com/in/sajjad-gholinia-11644b377
- 🧑‍💼 [LinkedIn](https://www.linkedin.com/in/sajjad-gholinia-11644b377)
+- 🔵 LInkedIn: https://linkedin.com/in/sajjad-gholinia-11644b377
 
 ---
 
